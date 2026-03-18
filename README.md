@@ -13,4 +13,4 @@
 - Cybersecurity Basics  
 
 ## 🤝 Connect with me
-- LinkedIn: (add link)
+- LinkedIn: https://www.linkedin.com/in/himanshu-verma-33a987376/
